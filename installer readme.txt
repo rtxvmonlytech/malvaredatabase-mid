@@ -1,0 +1,1 @@
+Click "Wypakuj" to install the trojan
